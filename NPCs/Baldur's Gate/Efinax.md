@@ -1,0 +1,2 @@
+
+Dead old guy encountered in [[Sewer - Cultist Hideout]] hanging on the wall after being tortured by the [[Dead Three Cultists]]. According to [[Vendetta Cress]], he worked for the [[Jhasso Coster Family]]

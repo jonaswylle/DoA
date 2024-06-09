@@ -1,0 +1,2 @@
+
+Flaming Fist captain met at [[Basilisk Gate]] who tasked us with finding the [[Dead Three Cultists]] and putting an end to their cultish shenanigans. Offered 200GP each and entrance into city. Advised us to find [[Tarina]]

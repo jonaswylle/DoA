@@ -1,0 +1,2 @@
+
+Pirate Captain, fought in [[Elfsong Tavern]] shortly after arriving at Baldur's Gate. He was coming for [[Tarina]] with 7 henchmen. We defeated them and he attempted to run, but I caught him and tied him up. 

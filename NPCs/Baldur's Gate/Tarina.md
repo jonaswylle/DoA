@@ -1,0 +1,2 @@
+
+Met at [[Elfsong Tavern]] for information as directed by [[Captain Zodge]]. She was playing [[Baldur's Bones]] and losing to a half-orc who she suspected was cheating. She had us serve briefly as bodyguards while she gambled to pay for the information, which involved fending off [[Lekard]] and his gang of pirates.

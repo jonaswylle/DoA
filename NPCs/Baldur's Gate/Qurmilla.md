@@ -1,0 +1,2 @@
+
+Masseuse encountered by the party at [[Vanthampur Bath House]]. Did not appear to be associated with the [[Dead Three Cultists]]. When the party escapes the [[Sewer - Cultist Hideout]], she is found dead in the massage chamber, killed by daggers.

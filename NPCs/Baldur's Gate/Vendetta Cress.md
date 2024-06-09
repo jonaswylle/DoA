@@ -1,0 +1,2 @@
+
+A wine and spirits distributor for the [[Oathoon Family]] of Baldur's gate. Encountered in the [[Sewer - Cultist Hideout]] chained to the wall near a dead man, [[Efinax]]. She informed the party that the [[Dead Three Cultists]] were questioning the two of them about the [[Patriars]] they worked for. She claimed to have fed them false information. She follows the party as they clear the rest of the hideout.
