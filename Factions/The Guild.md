@@ -1,2 +1,2 @@
 
-Seem to oppose the [[Dead Three Cultists]]
+Seem to oppose the [[Dead Three Cultists]].
